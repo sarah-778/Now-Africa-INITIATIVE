@@ -1,1 +1,3 @@
-# Now-Africa-INITIATIVE
+# Now-Africa-INITIAT
+
+#This is majorly for young farmers 
